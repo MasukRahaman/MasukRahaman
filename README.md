@@ -1,4 +1,4 @@
-![Web Designer]("https://www.canva.com/design/DAGHXAcvqlY/BOL25AiY-TTg369m8xrlBQ/view?utm_content=DAGHXAcvqlY&utm_campaign=designshare&utm_medium=link&utm_source=editor")
+![Web Designer](https://www.canva.com/design/DAGHXAcvqlY/BOL25AiY-TTg369m8xrlBQ/view?utm_content=DAGHXAcvqlY&utm_campaign=designshare&utm_medium=link&utm_source=editor)
 
 ### Hi there 👋, I'm Masuk
 #### Web Designer
