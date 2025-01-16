@@ -1,5 +1,4 @@
-![Web Designer][https://www.canva.com/design/DAGHXAcvqlY/BOL25AiY-TTg369m8xrlBQ/view?utm_content=DAGHXAcvqlY&utm_campaign=designshare&utm_medium=link&utm_source=editor](https://scontent.xx.fbcdn.net/v/t1.15752-9/448113959_981970456898325_4414991885776472890_n.png?_nc_cat=101&ccb=1-7&_nc_sid=5f2048&_nc_eui2=AeH_5CsQtzV2Vf7vnuUpnSgx2xdjyH1P5gbbF2PIfU_mBnJtkXAA8yZur74-HpFev0Gf_HP2lWZRetAP0a_1_82X&_nc_ohc=pTYgjdMBubUQ7kNvgEYG7dF&_nc_ad=z-m&_nc_cid=0&_nc_ht=scontent.xx&oh=03_Q7cD1QH411wGMI2lBa9vcptUk2U1o74OtsmcdANe8oXoQB2TMg&oe=6673B386)](https://www.canva.com/design/DAGHXAcvqlY/BOL25AiY-TTg369m8xrlBQ/view?utm_content=DAGHXAcvqlY&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h071e290f74)
-
+"C:\Users\topaz sajad\Downloads\Brown & Black Geometric Personal Branding LinkedIn Banner.png"
 ### Hi there 👋, I'm Masuk
 #### Web Designer
 
