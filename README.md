@@ -1,4 +1,4 @@
-["C:\Users\topaz sajad\Downloads\Brown & Black Geometric Personal Branding LinkedIn Banner.png"](https://www.canva.com/design/DAGHXAcvqlY/BOL25AiY-TTg369m8xrlBQ/view?utm_content=DAGHXAcvqlY&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h071e290f74)
+
 ### Hi there 👋, I'm Masuk
 #### Web Designer
 
